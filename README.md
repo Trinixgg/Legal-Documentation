@@ -17,3 +17,5 @@ Welcome to the Trinix AI legal repository. This repo houses all of the official 
 Discover and add Trinix AI through the official Discord Discovery page:
 
 [🔗 View Trinix AI on Discord Discovery](https://discord.com/discovery/applications/1332261384490323971)
+[🔗 View the Official Trinix AI website](https://trinix.gg/)
+[🔗 Review Us On Google](https://g.page/r/CRVWqO0LAjNNEAI/review)
