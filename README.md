@@ -27,3 +27,5 @@ Discover and add Trinix AI through the official Discord Discovery page or other 
 [🔗 Our Discord Support Server on Disboard](https://disboard.org/server/1363435820488589412)
 
 [🔗 Our Discord Support Server](https://discord.gg/HYWguG6b)
+
+[🔗 Official Trinix AI Instagram](https://www.instagram.com/trinixai/)
